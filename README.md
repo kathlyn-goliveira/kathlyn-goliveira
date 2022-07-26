@@ -1,4 +1,4 @@
-## Bem vindo (a) ao meu perfil! 😉
+## Kathlyn G. Oliveira 😉
 
  <div>
    <a href="https://github.com/kathlyn-goliveira">
